@@ -1,1 +1,0 @@
-# fetra-sympo
